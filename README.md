@@ -16,4 +16,4 @@ In-vitro images were processed in the following manner... (SF to complete)
 
 If there are any queeries please contact...
 For In-Vivo: m-leiwe"at"med.kyushu-u.ac.jp
-For In-Vitro: s
+For In-Vitro: sfujimoto"at"med.kyushu-u.ac.jp
